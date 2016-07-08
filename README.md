@@ -1,2 +1,2 @@
 # git-practice
-git 연습
+gitskjl;m;lskmp;mojhmn
